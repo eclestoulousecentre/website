@@ -1,4 +1,4 @@
-# Pour avoir le résumé des épisodes précédents ... suivez le fil ! (Fil#1 du20/11/2019)
+# Pour avoir le résumé des épisodes précédents ... suivez le fil ! (Fil#1 du 20/11/2019)
 
 Vous avez raté des infos, vous êtes en manque des news sur le fonctionnement de l’asso, ou vous avez
 reçu trop de mails et vous êtes perdus, ce post est pour vous !!!
@@ -31,7 +31,7 @@ Noémie pour les EcleX et Adrien est le référent des AineX. Et toute une Team 
 l’équipe d’animation au complet !
 
 Pour en savoir plus : lire le PV de réunion avec le résultat des votes.
-Le détail des tâches et noms des référents est dans notre Tableau du Grand Qui Fait Quoi.
+Le détail des tâches et noms des référents est dans notre [Tableau du Grand Qui Fait Quoi](http://ecles-toulouse-centre.fr/wp/lorganisation/le-grand-qui-fait-quoi/).
 
 ## épisode 2 : participation à Tremplin#1 (12/13 octobre)
 C’est le rdv incontournable de début d’année organisé par la Région pour la formation des Respos ...et des
