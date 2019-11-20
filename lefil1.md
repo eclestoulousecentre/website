@@ -1,5 +1,3 @@
-# Pour avoir le résumé des épisodes précédents ... suivez le fil ! (Fil#1 du 20/11/2019)
-
 Vous avez raté des infos, vous êtes en manque des news sur le fonctionnement de l’asso, ou vous avez
 reçu trop de mails et vous êtes perdus, ce post est pour vous !!!
 
