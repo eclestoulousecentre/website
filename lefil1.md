@@ -35,15 +35,17 @@ Le détail des tâches et noms des référents est dans notre [Tableau du Grand 
 
 ## épisode 2 : participation à Tremplin#1 (12/13 octobre)
 C’est le rdv incontournable de début d’année organisé par la Région pour la formation des Respos ...et des
-parents de l’équipe de groupe. J’y étais avec la plupart des respos. Le groupe Saint Cyp s’était mobilisé en
-force. Un bon we, où on a appris et rencontré les autres groupes de la région ! C’était un bon moyen de
-commencer l’année du bon pied. Ça donne envie d’y retourner... et ça tombe bien, il y a Tremplin#2 en
-mars ! On y sera.
+parents de l’équipe de groupe. J’y étais avec la plupart des respos. 
+Le groupe Saint Cyp s’était mobilisé enforce. Un bon we, où on a appris et rencontré les autres groupes de la région ! 
+C’était un bon moyen decommencer l’année du bon pied. 
+
+Ça donne envie d’y retourner... et ça tombe bien, il y a Tremplin#2 en mars ! On y sera.
 
 
 ## épisode 3 : des nouvelles du Local (47 rue Paul Lambert) ???
-Un grand ménage de novembre a été organisé le we du 11/11 par Théo et Stéphane. Vous y étiez peut-
-être. Merci aux volontaires qui ont retroussé les manches ! c’est du beau boulot !! mais on a encore du
+Un grand ménage de novembre a été organisé le we du 11/11 par Théo et Stéphane. 
+
+Vous y étiez peut-être. Merci aux volontaires qui ont retroussé les manches ! c’est du beau boulot !! mais on a encore du
 pain sur la planche...
 - nos malles WE par branche sont faites. Nous avons choisi de les sortir du local rapidement pour
 sécuriser le matériel et les respos qui préparent tout ça, car la situation n’est pas réglée rue Paul Lambert.
@@ -62,31 +64,42 @@ quand on aura trouvé, mais vous pouvez nous donner vos bons plans !!!
 
 ## épisode 4 : la réunion de l’équipe de groupe du 7 novembre
 On s’est réuni.e.s au café associatif le Caméléon, quartier Saint Cyprien.
-Les sujets à l’ordre du jour : le local, besoin formations respos, we cohésion des respos, prépa budget
-prévisionnel, orga we du 16/11, orga we de décembre et fête de Noël
-le compte rendu de réunion à lire ici
+
+Les sujets à l’ordre du jour : le local, besoin formations respos, we cohésion des respos, prépa budget prévisionnel, orga we du 16/11, orga we de décembre et fête de Noël.
+
+le compte rendu de réunion à lire [ici](http://ecles-toulouse-centre.fr/wp/odj_reuequipedegroupe_7nov2019/)
 
 ## épisode 5 : on prépare le we de décembre (14-15 décembre)
-Pas de changement pour la date, mais l’équipe d’animation travaille sur un projet de we commun. On
-modifie l’orga et le lieu pour rassembler toutes les branches sur le même lieu (pas trop loin si on peut) et
-faire une petite fête de Noël version Eclés. Ça fuse dans les discussions de l’équipe de groupe pour
-préparer tout ça. On vous en parle dès qu’on sera prêts... mais réservez la date (et libérez votre dimanche
-aprem pour participer à la fête avec les enfants).
+Pas de changement pour la date, mais l’équipe d’animation travaille sur un projet de we commun. 
+
+On modifie l’orga et le lieu pour rassembler toutes les branches sur le même lieu (pas trop loin si on peut) et
+faire une petite fête de Noël version Eclés. 
+
+Ça fuse dans les discussions de l’équipe de groupe pourpréparer tout ça. On vous en parle dès qu’on sera prêts... 
+mais **réservez la date (et libérez votre dimanche aprem pour participer à la fête avec les enfants)**.
 
 ## Épisode 6 : participation au Comité régional du 16/11
 Seb et moi y étions pour représenter le groupe Saint Cyprien. On y a vu l’équipe de la Région et d’autres
 groupes. Nos notes ici.
-En bref : Un temps de bilan des activités de la Région de l’année passée. Une volonté partagée d’échanger
-entre les groupes et pourquoi pas, de construire des projets communs : les comités territoriaux sont nés !
-À nous de les faire vivre ! 1ère rencontre fin novembre. Un temps de débat de fond sur la situation des
+
+En bref : 
+Un temps de bilan des activités de la Région de l’année passée. 
+Une volonté partagée d’échanger entre les groupes et pourquoi pas, de construire des projets communs : 
+les comités territoriaux sont nés !
+À nous de les faire vivre ! 1ère rencontre fin novembre. 
+
+Un temps de débat de fond sur la situation des
 salariés de l’Asso (région) non renouvelés, les urgences qu’il faut faire entre bénévoles en attendant, la
 pédagogie et les orientations données par l’Asso au niveau national. Des décisions et actions engagées
 pour remonter nos échanges au national,...
+
 Tout ceci et le reste se poursuit au Congrès Régional du 29fev/1er mars. Tous les adhérents de+16 ans
-peuvent y participer. Changement dans la formule cette année : qu’on y aille ou pas, tous les groupes
-locaux vont participer pour régler les dépenses liées à l’organisation de ce congrès ! Alors n’hésitez-plus,
-venez participer à ce temps démocratique de l’Asso !
+peuvent y participer. **Changement dans la formule cette année : qu’on y aille ou pas, tous les groupes
+locaux vont participer pour régler les dépenses liées à l’organisation de ce congrès !**
+
+Alors n’hésitez-plus, venez participer à ce temps démocratique de l’Asso !
 
 ## Épisode 7 : des nouvelles du mini camp neige organisé par la Région (vacances de février)
 Les pré-inscriptions ont commencé.
-Toutes les infos sont là : lien vers les infos de Louflash
+
+Toutes les infos sont là : [lien vers les infos de Louflash](http://ecles-toulouse-centre.fr/wp/2019/11/17/sejour-neige-2020/)
